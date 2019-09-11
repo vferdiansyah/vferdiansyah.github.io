@@ -10,7 +10,7 @@ We ordered their Cloud Duo (M). Originally, we want it to be Cloud Bobba Milk Te
 
 ## Review
 
-![cloud-bubble](/images/reviews/blu-cheese-tea.jpg)
+![cloud-bubble](/images/reviews/blu-cheese-tea/cloud-bobba-fresh-milk.jpg)
 
 ### Packaging
 
