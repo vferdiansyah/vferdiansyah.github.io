@@ -38,6 +38,6 @@ We ordered this for dessert 😆. Just kidding. My wife is still not full so we 
 
 Just your regular lemon tea, nothing strange or special about it.
 
-## Verdict (3/5 :star:)
+## Verdict (3/5 ⭐️)
 
 We quite liked it. And it's nearby our hospital too so we'll definitely re-visit the place if I crave for pasta again since other pasta places are quite far.
